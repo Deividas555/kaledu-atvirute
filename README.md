@@ -1,1 +1,1 @@
-# kaledu-atvirute
+# kaledu-atvirute (Deividas ir Kristupas)
